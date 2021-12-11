@@ -1,1 +1,1 @@
-💕 of the 🌎 with understand
+💕 of the 🌎 will understand
